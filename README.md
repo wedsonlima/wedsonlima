@@ -16,7 +16,7 @@ I like to work listening to mostly Metallica, Black Sabbath, Raul Seixas, and, m
 
 ### About Personal Projects
 
-I have a new idea for a big project every weekday and the pile of them is starting to look at me in a very strange way (just like my list of unread books).
+I have a new idea for a big project every weekday and the pile of them are starting to look at me in a very strange way (just like the pile of unread books).
 
 --
 
